@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Dark Souls
+2. Pokemon
+  1. Platinum
+  2. Heartgold
