@@ -1,1 +1,1 @@
-![Image of Blaze](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmegaman.fandom.com%2Fwiki%2FBlaze_Heatnix&psig=AOvVaw0ptBVx92dos714vb5omxhq&ust=1611529919568000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCKDN_PSWs-4CFQAAAAAdAAAAABAD)
+![Image of Blaze](https://static.wikia.nocookie.net/megaman/images/5/56/Mmx6blazeheatnix.jpg/revision/latest?cb=20181210213033)
